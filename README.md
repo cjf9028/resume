@@ -1,3 +1,3 @@
 이건 과제입니다.
 
-조경철의 자기소개서 내용
+[image] https://wall.alphacoders.com/big.php?i=815638
